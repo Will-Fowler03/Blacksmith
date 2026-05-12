@@ -6,8 +6,10 @@ Eventually, that just wasn't enough for me. Starting with nothing more than a fi
 <img width="378" height="504" alt="IMG_0297" src="https://github.com/user-attachments/assets/7e9bf879-2ca8-457d-a6eb-36970c78667e" />
 _Stacking the Billets_
 
+
 <img width="378" height="504" alt="IMG_0237" src="https://github.com/user-attachments/assets/ebab3f50-c898-4e9d-9653-558bf7c33e84" />
 _Firing the Stack_
+
 
 <img width="378" height="504" alt="76367915213__4D089E59-B243-479D-BF5C-489A59494BF4" src="https://github.com/user-attachments/assets/c5d109f7-b9e5-407d-8ae7-163bc6517db1" />
 _Making a Swage_
