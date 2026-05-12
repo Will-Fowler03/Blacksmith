@@ -2,6 +2,7 @@
 
 Since I was very young, I always had a fascination with swords and knives. Coming up through Boy Scouts, eventually becoming and Eagle Scout, I developed quite the blade collection!
 Eventually, that just wasn't enough for me. Starting with nothing more than a file and a length of scrap steel, I made my first cutting edge! From then on, I was determined to learn the craft. Also having an affinity for cooking, I honed my skills primarily to create kitchen knives. I additionally often make my own blacksmithing tools.
+
 <img width="378" height="504" alt="IMG_0297" src="https://github.com/user-attachments/assets/7e9bf879-2ca8-457d-a6eb-36970c78667e" />
 _Stacking the Billets_
 <img width="378" height="504" alt="IMG_0237" src="https://github.com/user-attachments/assets/ebab3f50-c898-4e9d-9653-558bf7c33e84" />
